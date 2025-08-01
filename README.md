@@ -1,16 +1,23 @@
-## Hi there 👋
+# *extended bio*
 
-<!--
-**maxxyyyyyyyy/maxxyyyyyyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### *໒꒱ ‧₊ call me max*
+![](https://files.catbox.moe/h4a0nz.png)
+**things i like:**
 
-Here are some ideas to get you started:
+**movies** - the patriot, forrest gump, star wars original trilogy/prequels, the little mermaid, tangled, my little pony: the princess prominade
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**tv shows** - star wars: droids, my little pony: friendship is magic
+
+**music artists** - ghost and pals, nero's day at disneyland, my chemical romance
+
+**other** - roller coasters and theme parks, especially disney parks **(major special interest!!)**, art, stuffed animals, girlblogging
+
+![](https://files.catbox.moe/h4a0nz.png)
+**DNI**
+
+- exclusionists (anti goodfaith, sysmed, etc.)
+- radqueers/transid
+- that's about it
+  
+![](https://files.catbox.moe/h4a0nz.png)
+![](https://files.catbox.moe/engw7f.png)
