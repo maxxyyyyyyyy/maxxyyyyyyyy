@@ -15,7 +15,7 @@
 ![](https://files.catbox.moe/h4a0nz.png)
 **DNI**
 
-- exclusionists (anti goodfaith, sysmed, etc.)
+- exclusionists
 - radqueers/transid
 - that's about it
   
